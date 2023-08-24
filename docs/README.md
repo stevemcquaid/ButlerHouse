@@ -2,7 +2,7 @@ For leasing information, please contact: leasing@hinklehotel.com
 
 ![](./img/3-web-or-mls-02-IMG_0010.jpg)
 
-## A Contemporary 2-Bedroom Unit with Private Entrance, and Prime Butler-Tarkington Location
+## Contemporary 2-Bedroom Apartment with Private Entrance, and Prime Butler-Tarkington Location
 Discover the perfect blend of comfort, style, and convenience in this exceptional 2-bedroom unit, nestled within the highly desirable Butler-Tarkington neighborhood of Indianapolis, IN. Just moments away from Butler University and the iconic Hinkle Fieldhouse, this property offers a unique opportunity for an elevated lifestyle.
 
 ![](./img/49-web-or-mls-12-IMG_8950.jpg)
@@ -11,7 +11,7 @@ Discover the perfect blend of comfort, style, and convenience in this exceptiona
 * Spacious 2-bedroom layout spanning 900 sqft, thoughtfully designed for comfortable living.
 * Open floor plan seamlessly connects living, dining, and kitchen spaces.
 * Modern kitchen equipped with essential appliances, including oven/stove, dishwasher, and fridge/freezer.
-* One bedroom is located in the partially finished basement, ensuring privacy and accessibility along with proper egress.
+* One of the two bedroomd is located in the partially finished basement, ensuring privacy and accessibility along with proper egress.
 * In-unit washer and dryer for added convenience.
 * Elegant hardwood and LVP floors enhance both aesthetics and functionality.
 * Abundant built-in storage solutions contribute to an organized living space.
@@ -31,6 +31,7 @@ Discover the perfect blend of comfort, style, and convenience in this exceptiona
 * Secure and private entrance guarantees exclusivity.
 * Free street parking available for residents and guests.
 * Recently renovated to exude a fresh and contemporary ambiance.
+* Unit is one half of a duplex. Units do not share any interior spaces, and have separate, private and secure entrances.
 
 ![](./img/15-web-or-mls-14-IMG_9931.jpg)
 
