@@ -1,5 +1,3 @@
-# Hinkle Hotel
-
 ![](./img/49-web-or-mls-12-IMG_8950.jpg)
 
 ## A Contemporary 2-Bedroom Unit with Private Entrance, and Prime Butler-Tarkington Location
