@@ -23,6 +23,8 @@ Discover the perfect blend of comfort, style, and convenience in this exceptiona
 * Conveniently situated across from the historic Hinkle Fieldhouse and prestigious Butler University.
 * Close proximity to local attractions, parks, dining, and shopping enriches your daily life.
 
+![](./img/20-web-or-mls-19-IMG_9946.jpg)
+
 ### Additional Advantages:
 * Thoughtfully updated kitchen and bathroom for a modern touch.
 * Private basement bedroom offers a unique layout, with proper egress access for safety.
