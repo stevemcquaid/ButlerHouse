@@ -37,7 +37,7 @@ Discover the perfect blend of comfort, style, and convenience in this exceptiona
 <!-- 
 ## Lease Information:
 
-Monthly rent: $1800 Unfurnished or $2200 Furnished
+Monthly rent: $2000 Unfurnished or $2200 Furnished
 
 Security deposit: Equivalent to one month's rent.
 
