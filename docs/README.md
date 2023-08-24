@@ -16,6 +16,8 @@ Discover the perfect blend of comfort, style, and convenience in this exceptiona
 * Elegant hardwood and LVP floors enhance both aesthetics and functionality.
 * Abundant built-in storage solutions contribute to an organized living space.
 
+![](./img/41-web-or-mls-04-IMG_8920.jpg)
+
 ### Prime Location:
 * Nestled within the highly sought-after Butler-Tarkington neighborhood.
 * Conveniently situated across from the historic Hinkle Fieldhouse and prestigious Butler University.
@@ -28,6 +30,8 @@ Discover the perfect blend of comfort, style, and convenience in this exceptiona
 * Secure and private entrance guarantees exclusivity.
 * Free street parking available for residents and guests.
 * High-speed internet included, effortlessly keeping you connected.
+
+![](./img/15-web-or-mls-14-IMG_9931.jpg)
 
 ## Additional Advantages:
 Recently renovated to exude a fresh and contemporary ambiance.
