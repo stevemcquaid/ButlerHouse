@@ -34,19 +34,6 @@ Discover the perfect blend of comfort, style, and convenience in this exceptiona
 * Unit is one half of a duplex. Units do not share any interior spaces, and have separate, private and secure entrances.
 
 ![](./img/15-web-or-mls-14-IMG_9931.jpg)
-<!-- 
-## Lease Information:
-
-Monthly rent: $2000 Unfurnished or $2200 Furnished
-
-Security deposit: Equivalent to one month's rent.
-
-Lease term: 10 months, offering flexibility without long-term commitment.
-
-### Requirements:
-
-* Pets are not permitted.
-* Smoking is not allowed on the premises. -->
 
 This unit presents a rare opportunity to embrace modern living in a prime location. 
 
