@@ -23,7 +23,7 @@ Discover the perfect blend of comfort, style, and convenience in this exceptiona
 * Conveniently situated across from the historic Hinkle Fieldhouse and prestigious Butler University.
 * Close proximity to local attractions, parks, dining, and shopping enriches your daily life.
 
-![](./img/20-web-or-mls-19-IMG_9946.jpg)
+![](./img/15-web-or-mls-14-IMG_9931.jpg)
 
 ### Additional Advantages:
 * Thoughtfully updated kitchen and bathroom for a modern touch.
@@ -33,7 +33,7 @@ Discover the perfect blend of comfort, style, and convenience in this exceptiona
 * Recently renovated to exude a fresh and contemporary ambiance.
 * Unit is one half of a duplex. Units do not share any interior spaces, and have separate, private and secure entrances.
 
-![](./img/15-web-or-mls-14-IMG_9931.jpg)
+![](./img/20-web-or-mls-19-IMG_9946.jpg)
 
 This unit presents a rare opportunity to embrace modern living in a prime location. 
 
