@@ -37,4 +37,4 @@ Discover the perfect blend of comfort, style, and convenience in this exceptiona
 
 This unit presents a rare opportunity to embrace modern living in a prime location. 
 
-## Secure your spot by scheduling a viewing today. Contact Matt for leasing information at: leasing@hinklehotel.com
+## Secure your spot by scheduling a viewing today. For leasing information contact: leasing@hinklehotel.com
