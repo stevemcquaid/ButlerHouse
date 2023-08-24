@@ -32,8 +32,8 @@ Discover the perfect blend of comfort, style, and convenience in this exceptiona
 ![](./img/15-web-or-mls-14-IMG_9931.jpg)
 
 ## Additional Advantages:
-Recently renovated to exude a fresh and contemporary ambiance.
-Lawncare service included, maintaining the property's attractive curb appeal.
+* Recently renovated to exude a fresh and contemporary ambiance.
+* Lawncare service included, maintaining the property's attractive curb appeal.
 
 ## Lease Information:
 
@@ -48,4 +48,4 @@ Lease term: 10 months, offering flexibility without long-term commitment.
 * Pets are not permitted.
 * Smoking is not allowed on the premises.
 
-This unit presents a rare opportunity to embrace modern living in a prime location. Secure your spot by scheduling a viewing today. Contact Matt  at [Your Phone Number] or leasing@hinklehotel.com.
+### This unit presents a rare opportunity to embrace modern living in a prime location. Secure your spot by scheduling a viewing today. Contact Matt  at [Your Phone Number] or leasing@hinklehotel.com.
