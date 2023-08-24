@@ -23,23 +23,18 @@ Discover the perfect blend of comfort, style, and convenience in this exceptiona
 * Conveniently situated across from the historic Hinkle Fieldhouse and prestigious Butler University.
 * Close proximity to local attractions, parks, dining, and shopping enriches your daily life.
 
-### Amenities & Features:
-* Stylishly furnished, including a 55" smart TV, ensuring immediate comfort and entertainment.
+### Additional Advantages:
 * Thoughtfully updated kitchen and bathroom for a modern touch.
 * Private basement bedroom offers a unique layout, with proper egress access for safety.
 * Secure and private entrance guarantees exclusivity.
 * Free street parking available for residents and guests.
-* High-speed internet included, effortlessly keeping you connected.
+* Recently renovated to exude a fresh and contemporary ambiance.
 
 ![](./img/15-web-or-mls-14-IMG_9931.jpg)
 
-### Additional Advantages:
-* Recently renovated to exude a fresh and contemporary ambiance.
-* Lawncare service included, maintaining the property's attractive curb appeal.
-
 ## Lease Information:
 
-Monthly rent: $2,400
+Monthly rent: $1800 Unfurnished or $2200 Furnished
 
 Security deposit: Equivalent to one month's rent.
 
@@ -50,4 +45,6 @@ Lease term: 10 months, offering flexibility without long-term commitment.
 * Pets are not permitted.
 * Smoking is not allowed on the premises.
 
-## This unit presents a rare opportunity to embrace modern living in a prime location. Secure your spot by scheduling a viewing today. Contact Matt for leasing information at: leasing@hinklehotel.com
+This unit presents a rare opportunity to embrace modern living in a prime location. 
+
+## Secure your spot by scheduling a viewing today. Contact Matt for leasing information at: leasing@hinklehotel.com
