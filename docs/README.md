@@ -1,3 +1,5 @@
+For leasing information, please contact: leasing@hinklehotel.com
+
 ![](./img/49-web-or-mls-12-IMG_8950.jpg)
 
 ## A Contemporary 2-Bedroom Unit with Private Entrance, and Prime Butler-Tarkington Location
@@ -48,4 +50,4 @@ Lease term: 10 months, offering flexibility without long-term commitment.
 * Pets are not permitted.
 * Smoking is not allowed on the premises.
 
-## This unit presents a rare opportunity to embrace modern living in a prime location. Secure your spot by scheduling a viewing today. Contact Matt  at [Your Phone Number] or leasing@hinklehotel.com.
+## This unit presents a rare opportunity to embrace modern living in a prime location. Secure your spot by scheduling a viewing today. Contact Matt for leasing information at: leasing@hinklehotel.com
