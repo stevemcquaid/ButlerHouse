@@ -31,6 +31,8 @@ This unit presents a rare opportunity to embrace modern living in a prime locati
 
 ## Secure your spot by scheduling a viewing today. For leasing information contact: leasing@hinklehotel.com
 
+*** 
+
 # Unit 1
 ![](./img/4-web-or-mls-03-IMG_9892.jpg)
 ![](./img/5-web-or-mls-04-IMG_9895.jpg)
@@ -63,6 +65,8 @@ This unit presents a rare opportunity to embrace modern living in a prime locati
 ![](./img/32-web-or-mls-31-IMG_9985.jpg)
 ![](./img/33-web-or-mls-32-IMG_9988.jpg)
 ![](./img/34-web-or-mls-33-IMG_9989.jpg)
+
+*** 
 
 # Unit 2
 ![](./img/41-web-or-mls-04-IMG_8920.jpg)
